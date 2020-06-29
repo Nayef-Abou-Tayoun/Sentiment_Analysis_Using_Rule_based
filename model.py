@@ -1,12 +1,3 @@
-## Nayef Abou Tayoun
-##20141101
-##MMAI
-##2020
-##MMAI891
-##28/6/2020
-
-## Q1 all part(1)
-
 
 
 
